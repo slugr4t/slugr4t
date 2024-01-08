@@ -29,15 +29,17 @@ satanic rites of drugula . electric wizard
 <img src="https://64.media.tumblr.com/ecb2493be18207698189640aaa5f4b8f/3558b906d3e28e70-ee/s250x400/878e6ec7c2b5262a3e3818e979188288bd334b96.gifv"/>
 
 
-<h5 align="center"/>
+<h3 align="center"/>
 
 
 ☆. 
 <img src="https://external-media.spacehey.net/media/sZqqzjsfRclSf_CloQJESswd6i-Z79VrVyGYrAE4S0H4=/https://stethoscope.carrd.co/assets/images/gallery01/293ac7e7.gif?v=69e5e9bc"/>
  !!
 
+<h2 align="center"/>
 hey! im slugrat, feel free to int!
 
+<h5 align="center"/>
   im a huge enthusiast of all things creepy, crawly and spooky
 
 
