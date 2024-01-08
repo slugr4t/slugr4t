@@ -1,4 +1,4 @@
-<h1 align="center">  
+<h2 align="center">  
 <img src="https://external-media.spacehey.net/media/suXSPWpiA2t42POVZjK4Tqwz497fTZ4jp68A8hTqr8V4=/https://xyz.crd.co/assets/images/gallery18/698c5703.gif?v=6ecccb1c"/>
 <img src="https://external-media.spacehey.net/media/splcXydbd9x81hiY4i-p8wMvmpdt8_NW68JSml-h7KX4=/https://caterpie.crd.co/assets/images/gallery27/2d05e25a.gif?v=08522da7"/>
 ☆. dopesmoke,
@@ -11,7 +11,9 @@
 
 <img src="https://external-media.spacehey.net/media/su7oTNyyFRcNvhQdpK6PL_a3r1YlW-kNaTYywudeIRls=/https://64.media.tumblr.com/ee28171f04e6779a4e3241b3c5cafddf/8d9770f3eed181f7-e5/s400x600/b5a45e959a3db0b903b10bcf762f503d544b98e9.gifv"/>
 
-<h2 align="center">
+<h5 align="center">
+
+satanic rites of drugula . electric wizard
 
 <h3 align="center">
 
