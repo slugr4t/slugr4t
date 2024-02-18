@@ -4,7 +4,7 @@
 ☆. dopesmoke,
 
 
-  violates my tomb and awakens me
+  violates my tomb and awakens me ♱
 <img src="https://external-media.spacehey.net/media/s2CxsBN1n6N7H--M7Oi6NOIHucmTl96BbQUsLOGZQR6Q=/https://mikejima.crd.co/assets/images/image05.gif?v=d1938754"/>
 
 
